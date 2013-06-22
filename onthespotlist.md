@@ -1,0 +1,17 @@
+#Shit to do at some point in my lifetime 
+## We all need goals, no?
+
+
+-[ ]Learn to sew
+
+-[ ]Read Pulitzer prize winning books from 200-2010
+
+-[ ]Watch Cannes winning documentaries from 2008-2013
+
+-[ ]Make gluten free pasta by hand
+
+-[ ]Collect 4 original paintings
+
+-[ ]Develop all the undeveloped film in house
+
+-[ ]Finally figure wtf is happening with my machine
